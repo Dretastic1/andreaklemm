@@ -1,4 +1,4 @@
-# andreaklemm
+# Andrea Klemm
 
 ## Currently: VP, Strategy & Operations at Chainguard
 - Working on companywide AI enablement and company outcome planning and rhythms
