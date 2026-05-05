@@ -7,5 +7,5 @@
 - Chief of Staff to the CEO at Chainguard
 - Chief of Staff to the CEO at Optum Store
 
-### Find me at [Linkedin](linkedin.com/in/andreaklemm/)
+### [LinkedIn](linkedin.com/in/andreaklemm/)
 
